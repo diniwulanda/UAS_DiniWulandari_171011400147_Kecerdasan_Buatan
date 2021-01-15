@@ -1,2 +1,2 @@
-# UAS_DiniWulandari_171011400147_Kecerdasan_Buatan
-UAS
+# UAS_DiniWulandari_171011400175_Kecerdasan_Buatan
+
